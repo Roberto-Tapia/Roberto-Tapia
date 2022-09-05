@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **tapiaroberto1994@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1aaK7xELKu5A1L_RDYlUHpjHPTtImze0v/edit?usp=sharing&ouid=117985932821481390480&rtpof=true&sd=true](https://docs.google.com/document/d/1aaK7xELKu5A1L_RDYlUHpjHPTtImze0v/edit?usp=sharing&ouid=117985932821481390480&rtpof=true&sd=true)
+- 📄 Know about [my experiences](https://docs.google.com/document/d/1aaK7xELKu5A1L_RDYlUHpjHPTtImze0v/edit?usp=sharing&ouid=117985932821481390480&rtpof=true&sd=true)
 
 - ⚡ Fun fact **I have a portrait of Danny Devito on my thigh**
 
